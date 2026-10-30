@@ -1,1 +1,1 @@
-#prodigymembershipfreeBIGBOI-bitXfdwcjZhUVGVwcjnikuhbyhyBBKHBCNQBJGAMEhackbyqgc
+#prodigymembershipfreeBIGBOI-bitXfdwcjZhUVGVwcjnikuhbyhyBBKHBCNQBJGAMEhackbyqgc?true/kimsey/prodigy/true
